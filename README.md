@@ -1,5 +1,5 @@
 # ColdTurkeyBlocker-PRO-Activator
-Activate Cold Turkey Blocker for free
+Activate Cold Turkey Blocker for free (working 2026)
 # Cold Turkey Blocker - Pro
 
 > [!NOTE]
